@@ -3,3 +3,4 @@
 ## This is my income expenses and forecast. I used it to keep track my spendings.
 ## I have no job, can't find one, receive $2485 Hong Kong dollar allowance from the Hong Kong Government per month. That is all I have.
 ## I use the allowance for all sorts of payment; such as mobile phone, broadband and sportify monthly fees, meals and snacks (3 times per day), even previously for medication. I am a smoker, also spend for smoking and self beauty (hair dyeing, cutting and buying clothes). 
+## As mentioned, I am a smoker, if you are not, you then have additional $900 of spending. You can dine outside, or you can buy more ingredients for preparing your own meal.
